@@ -1,0 +1,2 @@
+# sarkari
+Vellore District Court Recruitment 2015: The Vellore District Court has recently advertised a recruitment notification for several posts such as Office Assistant, Junior Assistant, Typist, Steno, Night Watchman, Full Time Masalchi and others. Vellore District Court is inviting applications to fill total 118 vacancies. The interested candidates may visit the official notification of Vellore District Court Recruitment 2015 to get details about eligibility criteria, reservations, job titles, pay scales and selection process.
